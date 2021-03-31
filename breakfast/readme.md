@@ -11,7 +11,7 @@
 - Vanilla extract
 - Select toppings:
   - [Strawberries]
-  - [❗️ADD❗️]
+  - [Kiwi]
   - [❗️ADD❗️]
 
 ## Equipment needed:
