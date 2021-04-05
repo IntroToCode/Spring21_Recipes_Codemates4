@@ -12,6 +12,7 @@
 2 sprigs basil
 2 28-ounce cans whole peeled tomatoes
 Kosher salt, freshly ground pepper
+¼ cup full-bodied red wine
 
 
 ## Equipment needed:
