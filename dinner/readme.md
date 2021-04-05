@@ -17,6 +17,7 @@ Kosher salt, freshly ground pepper
 ## Equipment needed:
 Chef's Knife
 Medium Heavy Pot
+Grandma's Spatula for stirring and tasting!
 
 ## Steps for preparation:
 
