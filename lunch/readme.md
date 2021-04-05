@@ -16,6 +16,7 @@
 ## Equipment needed:
 - Large mixing bowl
 - Knife
+- Mortar and Pestle
 - Mixing utensil (big fork or spoon)
 
 ## Steps for preparation:
