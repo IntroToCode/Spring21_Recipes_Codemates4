@@ -10,10 +10,11 @@ Marinara Sauce
 4 garlic cloves, thinly sliced
 2 sprigs basil
 2 28-ounce cans whole peeled tomatoes
-Kosher salt, freshly ground pepper
+Kosher salt (1 teaspoon), freshly ground pepper
 
 ## Equipment needed:
 Medium Pot
+Mixing utensil
 
 ## Steps for preparation:
 Step 1
