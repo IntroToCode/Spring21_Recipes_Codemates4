@@ -11,10 +11,12 @@ Marinara Sauce
 2 sprigs basil
 2 28-ounce cans whole peeled tomatoes
 Kosher salt (1 teaspoon), freshly ground pepper
+Giant Parmesan Cheese Wheel
 
 ## Equipment needed:
-Medium Pot
-Mixing utensil
+- Medium Pot
+- Grandma's Great Spatula for stirring and tasting!
+- Strainer to strain the tomatoes
 
 ## Steps for preparation:
 Step 1
