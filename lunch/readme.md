@@ -6,7 +6,7 @@
 
 ## Ingredients:
 - 6 Avocados (semi-ripe)
-- (ingredient suggestion: lime)
+- 2 lime, juiced
 - (ingredient suggestion: onions)
 - (ingredient suggestion: tomatoes)
 - (ingredient suggestion: cilantro)
