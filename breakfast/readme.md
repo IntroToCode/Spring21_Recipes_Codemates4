@@ -9,6 +9,7 @@
 - Almond milk or other milk
 - Honey
 - Vanilla extract
+- Sugar
 - Select toppings:
   - [Strawberries]
   - [Kiwi]
