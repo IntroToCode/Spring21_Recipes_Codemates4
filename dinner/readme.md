@@ -13,6 +13,7 @@ Marinara Sauce
 Kosher salt (1 teaspoon), freshly ground pepper
 Giant Parmesan Cheese Wheel
 ¼ cup full-bodied red wine
+One packet of noobles
 
 ## Equipment needed:
 - Medium Pot
