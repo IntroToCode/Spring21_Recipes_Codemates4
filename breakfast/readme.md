@@ -13,7 +13,7 @@
 - Select toppings:
   - [Strawberries]
   - [Kiwi]
-  - [❗️ADD❗️]
+  - [Blueberries]
 
 ## Equipment needed:
 - Large mason jar
