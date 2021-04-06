@@ -8,10 +8,10 @@
 - 6 Avocados (semi-ripe)
 - 2 lime, juiced
 - 1 yellow onion, finely chopped
-- (ingredient suggestion: tomatoes)
-- (ingredient suggestion: cilantro)
-- (ingredient suggestion: salt)
-- (ingredient suggestion: garlic)
+- 1 tomato
+- Cilantro
+- Salt
+- 1 clove of garlic
 
 ## Equipment needed:
 - Large mixing bowl
